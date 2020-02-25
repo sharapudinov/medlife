@@ -1,0 +1,1 @@
+<a href="mailto:info@medical-life.pro">info@medical-life.pro</a>
